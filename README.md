@@ -1,4 +1,4 @@
-# yo, i'm anay 👋
+# yo, i'm anay ✌️
 
 student developer, founder, and professional builder of things i probably didn't need to build (but did anyway).
 
